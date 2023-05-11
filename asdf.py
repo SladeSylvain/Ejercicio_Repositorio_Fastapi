@@ -1,4 +1,1 @@
 "intentando no autodestruirme"
-
-
-asdajshdujaknsdk
